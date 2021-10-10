@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RY2Savage06 or Riyadh
+- 👀 I’m interested in, Gaming, movies and sleeping
+- 🌱 I’m currently learning Business and Geography for my GCSE's
+- 📫 How to reach me. Dont reach out to me
